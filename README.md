@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on secret
 - 📫 How to reach me secret
 - 😄 Pronouns: ...
-- ⚡ Fun fact: ...
+- ⚡ Fun fact: secret
 
 <!---
 alexamay3/alexamay3 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
