@@ -3,7 +3,7 @@
 - 🌱 I’m currently learning coding
 - 💞️ I’m looking to collaborate on secret
 - 📫 How to reach me secret
-- 😄 Pronouns: ...
+- 😄 Pronouns: hahaha
 - ⚡ Fun fact: secret
 
 <!---
