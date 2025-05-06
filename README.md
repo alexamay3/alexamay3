@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @alexamay3
 - 👀 I’m interested in secret
 - 🌱 I’m currently learning coding
-- 💞️ I’m looking to collaborate on secret
+- 💞️ I’m looking to collaborate on idonoo
 - 📫 How to reach me secret
 - 😄 Pronouns: hahaha
 - ⚡ Fun fact: secret
